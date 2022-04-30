@@ -3,7 +3,7 @@ This game contains graphic violence. These scenes include blood, gore, death, an
 
 There might be references of: Suicide, mental illness/ instability, drugs, sex/ sexual content, and more. 
 
-Please do play at your own risk.
+### Please do play at your own risk.
 
 
 ## If you feel as if you need to reach out to someone for help :
